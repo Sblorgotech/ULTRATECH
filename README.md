@@ -7,4 +7,4 @@
 
 
 Aaand, Done!
-If you would like to give Me Suggestions then Feel Free to Do So!
+If you would like to give Me Suggestions then DM Me on Discord (spike2473)
